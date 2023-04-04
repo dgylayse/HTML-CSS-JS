@@ -1,0 +1,1 @@
+Merhabalar. Burada sadece anasayfa tasarladım. İlerleyen süreçte blog sitesinin tüm halini ekleyip paylaşacağım.
